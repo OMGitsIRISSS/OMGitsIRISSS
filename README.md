@@ -5,12 +5,13 @@ Data · AI · Business · International Experience
 
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
-ABOUT
-
-Currently exploring:
-📊 Data & Business Analytics
-🤖 AI Products
-🌏 International Business
-
+🎓 Undergraduate @ ZUEL
+📍 Somewhere between China & the world
+🔎 Exploring Data / AI / Business
+🛠 Building small things on the internet
+📚 Learning CFA / Financial Analysis
 
 
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+
+Reach me at yf.zhang.0720@gmail.com
